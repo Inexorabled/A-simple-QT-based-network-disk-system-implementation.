@@ -8,15 +8,5 @@
 
 
 
-![image-20220714073648203](C:\Users\Inexorableqd\AppData\Roaming\Typora\typora-user-images\image-20220714073648203.png)
 
-![image-20220714073804465](C:\Users\Inexorableqd\AppData\Roaming\Typora\typora-user-images\image-20220714073804465.png)
-
-![image-20220714073910077](C:\Users\Inexorableqd\AppData\Roaming\Typora\typora-user-images\image-20220714073910077.png)
-
-![image-20220714074038427](C:\Users\Inexorableqd\AppData\Roaming\Typora\typora-user-images\image-20220714074038427.png)
-
-
-
-![image-20220714073832989](C:\Users\Inexorableqd\AppData\Roaming\Typora\typora-user-images\image-20220714073832989.png)
-
+![image](https://user-images.githubusercontent.com/43019579/178857377-a1690e25-3c5b-48e4-aaaf-5887d6d2b42f.png)
